@@ -1,4 +1,5 @@
 Hi there 👋
+
 My name is Christiana. I'm an American hailing from Norway, and I'm the founder of Astra Couture Atelier, a clothing supplier. Here are some highlights of my journey and interests 😄:
 
 **Educational Background**
